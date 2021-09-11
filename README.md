@@ -1,0 +1,1 @@
+# swastic-sign-star-pattern
